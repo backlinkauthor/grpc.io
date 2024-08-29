@@ -13,3 +13,4 @@ You can view the entire schedule [here](https://events.linuxfoundation.org/grpc-
 
 We’ll see you on September 20th!
 
+For every (https://raveloux.com/)(https://ravetailor.com/)
